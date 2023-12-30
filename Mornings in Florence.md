@@ -139,5 +139,183 @@ Murray先生告诉你这是些“浅浮雕”（噫嘘唏！是的，现在相�
 
 仔细研究在这两位骑士头顶上哥特式壁龛的线条，再看看他们铠甲上错综的装饰图案。他们比唐纳泰罗的圣乔治更有骑士风范的美和温柔，因为圣乔治只是一件摆在旧式墓碑上、纯粹自然主义的作品。如果在傍晚你前往加尔都西会修道院（Certosa di Firenze），你也许会看到唐纳泰罗所雕的未受损的浮雕，美丽异常。但是这片浮雕所覆盖的那些早期作品比它更完美。也许你会看到修道院生活暗淡的光影，如果你在那里一直停留到萤火虫出现在黄昏的时候，并在回到家后立刻睡觉，你会更好地迎接明天的徒步——比你去派对，聊自己对意大利的感觉，然后再听些伦敦和纽约的新闻要好。
 
-第一天·完
 
+## DAY 2 金门（The Golden Gate）
+今天，尽量早点出发，在做别的事情之前，先去乔托自己的教区教堂，新圣母大殿（Santa Maria Novella）。如果你从斯特罗齐宫（Palazzo Strozzi）出发，向右找到“美人路”[译者注：路名来源于性产业。]，就可以快速抵达。
+
+不要让任何熟人、看守或偶然的景象阻止你执行我的指示。直接走向教堂，进入它的后殿；你可以在走的过程中留意一下窗花的光辉，只是要注意一下半道上的台阶。拉开帘子，走到大理石祭坛后面，无论用什么代价，打发走跟着你要这要那的人。
+
+你很可能已经知道，你身旁的每一侧的壁画都是基兰达奥（Domenico Ghirlandaio）的。人们告诉你它们非常精美，如果你对绘画稍有了解，你会知道画上的肖像确实是精美的。然而，不知何故，你似乎并不能真正地欣赏这些壁画，也不常到这里来看，是吗？
+
+这是因为，如果你是个要求高的人，它们对你而言不够好；如果你是个庸俗的人，它们则不够庸俗。不过，如果你是个有品位的人，我希望你今天仔细看看窗户旁边的两幅最靠下的壁画。花上几分钟的时间，通过和这两幅画的对比，你就可以更清楚什么是你真正要学习研究的艺术。
+
+在你左手边的是圣母的诞生，右边是她和以利沙伯相会，也就是“问安”[译者注：即“salutation”，玛丽亚在怀孕后拜访她的表姐，也在怀孕的以利沙伯。]。
+
+你不太容易找到更好的、更豪华的平面金艺作品。基兰达奥终其一生都是一位纯粹的金艺工匠，兼具肖像画的才能。在这里，他尽力而为，把一堵长长的墙壮观地放在了壮美的透视中，让整个佛罗伦萨城都成为以利沙伯山丘上的家的背景。在圣安娜的卧室里，有一块精美的、卢卡·德拉·罗比亚（Luca della Robbia）风格的低浮雕。他还精修了所有的柱子，给所有的衣服都刺了绣，把每个角落都装饰得夸张又张扬。某种角度来说，这件作品可算得上是“尽善尽美”，和基兰达奥的水平相当。但是在某个极其重要的方面，它存在着瑕疵，这让他的作品变得一无是处。
+
+现在，从这个工匠华丽的废品中抽身，仔细看看画中的场景。起初，你可能会说：“多么伟大而优雅的人物形象！”你确定他们很优雅吗？再看一次，你会看到他们的衣服恰好从身上垂下，就像被两个衣服夹子夹着似的。然而，精致的布料从衣夹上垂下时，宽大而深厚的褶子还是会给人深刻的印象，这也是这些人物形象上唯一的有点。
+
+然后，再仔细看看圣母。你会发现她并不温顺，只是愚蠢，就像画中其他的女性。
+
+“你认为以利沙伯画得好吗？”“是的，她正说：‘我主的母到我这里来，这是从哪里得的呢？’[译者注：路加福音，1.43。]，难道不是表现出了很认真的感觉？”好吧，确实很好，你已经看够这两个人了。再多看一分钟圣母的诞生。《Murray指南》告诉你，这是非常优雅的群像描绘，被家仆围绕。极其准确。抱孩子的那个人还挺漂亮；有个仆人从很高的地方往下倒水，巧妙地没有溅起水花；有个走过来问候圣安娜、看看婴儿的女士步履庄重，衣着精美；那个风格类似卢卡·德拉·罗比亚的浮雕，你可能真的会认为那出自卢卡的手笔！毫无疑问，基兰达奥大师，你的店里一直都有最好的镀金商品。
+
+好的，现在你必须找到圣器室管理人（sacristan），一个彬彬有礼、和蔼可亲的人，让他带你进入绿色回廊，在你下台阶的地方再进到右侧的次级回廊。你得要求看Marcheza Stiozzi Ridolfi的墓，在他墓碑后面的凹槽处、非常靠近地面的地方，如果天气足够好、光线也足够好，你会看到两幅小型壁画，每幅只有约四英尺宽，形状奇特，是四分之一圆的扇形。左边是约阿希姆和安娜在金门下相遇，右边是圣母的诞生。
+
+你可能觉得这里没有华丽的号角，门没有镀金，圣母的诞生难道只有这些吗？天啊，没有浮雕，没有漂亮的衣服，没有优雅的倒水动作，也没有访客的队列？什么都没有？
+
+不。在这里你只能看到一样东西，那是你在基兰达奥画里不使劲找就看不到的，那就是婴儿！你在这个世界上很可能再也看不到比这更真实的乔托的作品了。
+
+一个圆脸、小眼睛的小东西，裹在襁褓里！
+
+是的，乔托认为她不需要更多的点缀了。但是看看刚刚给她穿衣服的仆人：充满敬畏、充满爱和惊奇，轻轻地把手放在孩子的头上，孩子从未大哭大叫。刚刚抱着她的保姆只是保姆，没有别的身份。她穿着整洁，非常骄傲和高兴；对任何其他孩子她都会是这个态度。
+
+基兰达奥的圣安娜（我刚才本该让你注意一下，不过你可以之后再看）在床上的坐姿坚定，如果不是在指挥，那就是在观察周遭的一切。乔托的圣安娜躺在枕头上，脸靠在手上，很疲惫，还在深思。她知道她的孩子会被仆人或是上帝照顾得妥妥当当，她不需要关心任何事情。
+
+床脚站着产婆，还有一个给圣安娜提供饮料的仆人。那个仆人站着，看到产妇如此安静，便询问产婆是否应该马上给她喝水。产婆的手藏在袍子下面，在一种感恩的姿态中（奇妙的是，乔托的人物做的是感恩还是祈祷的姿势总是能被辨别出来），用眼神回答道，算了吧，她什么都不需要。
+
+在门口，只有一个老相识想走进来看看孩子。装饰上，仆人拿的瓶子非常朴实，没有花纹；颜色上，有两三块暗红色，剩下就是纯白、褐色和灰色。
+
+仅此而已。如果你喜欢这幅画，你就能看到佛罗伦萨。如果你不能的话，哪怕你尽情在佛罗伦萨玩耍，想玩多就玩多久，你也永远无法真正看到她。
+
+不过，哪怕你只有一点点喜欢这壁画，想一想你的喜爱来自何处。我特意带你穿过佛罗伦萨最繁杂最混乱（farrago of tweedledum and tweedledee）的序曲，你却爱上了无名之人画里、牧羊人之笛子吹出来的四个音符组成的小调，而你还喜欢上了它！那么，你其实知道音乐的真谛。我这里还有另一首来自同一个演奏者的小调，更加甜蜜动听。我让你从最简单的开始听。
+
+左手边的壁画，有明亮的蓝天和玫瑰色的人物！噢，任何人都可能喜欢它！
+
+是的，但是，哎，蓝天都是重绘的。不过，天肯定总是蓝的、明亮的。我敢说，这幅画最初完成时，所有人都喜欢它。
+
+我想，你应该知道阿希姆和安娜的故事？不，我对细节所知不多；如果你不知道这个故事的话，我也不会吊起你的胃口等着我细细道来。在欣赏壁画前，你所需要知道的不是太多，只是说，曾经有一对老夫妇，他们在失散后重逢，因为不在预期之内，两人都很害怕；他们按上帝的嘱咐前往某个地方，去时不知道会发生什么。
+
+“于是他们冲进对方的怀抱，彼此亲吻。”
+
+不，乔托说，不是那样。
+
+“他们以符合最严格的构图法的方法相向而行，身上衣褶的精细程度在拉斐尔之前无人能及。”
+
+不，乔托说，也不是那样。
+
+安娜的动作最快，快到裙子上的褶皱朝向后方。她已经抓住了约阿希姆的披风，温柔地把他拉向她。圣约阿希姆以为她快要昏倒，便把手放在她的胳膊下面扶着她。他们没有互相亲吻，只是凝视着对方的眼睛。上帝的天使把手放在他们的头上。
+
+他们的背后有两个粗糙的身影，忙着自己的事情。他们是约阿希姆的两个牧羊人，其中一个光着头，另一个带着宽大的佛罗伦萨帽，后面有一个下垂的尖尖，其管状结构就像是风铃草或是紫罗兰。两个人在聊天，就像是民歌（Greasy Joan and her pot）里面的日常人物一样。他们并非你认为能在这个场景里和谐存在的人。按照拉辛或者伏尔泰的戏剧法则，他们的出现也不太合适。
+
+不，但根据莎士比亚和乔托的看法，这些人正是有可能在这个场景里的人物。就像天使也出现在那里一样。尽管如今会有人告诉你，乔托画的空中天使是荒谬的，他用来画天空的蓝色如今能被一个药剂师轻松调制。你读过莎士比亚和其他一些有头脑和心智的人。追随这位牧羊少年[译者注：一些乔托的传记作者认为他早年照看父亲的山羊，也曾是个牧羊少年。]的足迹，你可以原谅他在角落里留下的怪异行径。但是，他竟然靠他所接受的训练原谅了自己，这真是令人惊奇！我们今天已经看了很多简单的画作，因此我们认为，当然啦，牧羊少年会画牧羊人，有什么奇怪的呢？
+
+
+我可以向你展示，这位牧羊少年的不凡，如果你愿意画五分钟和我一起走回教堂，走到南侧末端的小礼拜堂。在天气晴朗的情况下，请你让圣器室管理人把窗帘拉开，这样的光线足以展示乔托大师最真实、也是最具盛名的作品。你将看到这位少年经历过了怎样的艺术训练。
+
+%%%%
+
+A good and brave master he was, if ever boy had one; and, as you will find when you know really who the great men are, the master is half their life; and well they know it—always naming themselves from their master, rather than their families. See then what kind of work Giotto had been first put to. There is, literally, not a square inch of all that panel—some ten feet high by six or seven wide—which is not wrought in gold and colour with the fineness of a Greek manuscript. There is not such an elaborate piece of ornamentation in the first page of any Gothic king's missal, as you will find in that Madonna's throne;—the Madonna herself is meant to be grave and noble only; and to be attended only by angels.
+
+And here is this saucy imp of a lad declares his people must do without gold, and without thrones; nay, that the Golden Gate itself shall have no gilding that St. Joachim and St. Anne shall have only one angel between them: and their servants shall have their joke, and nobody say them nay!
+
+It is most wonderful; and would have been impossible, had Cimabue been a common man, though ever so great in his own way. Nor could I in any of my former thinking understand how it was, till I saw Cimabue's own work at Assisi; in which he shows himself, at heart, as independent of his gold as Giotto,—even more intense, capable of higher things than Giotto, though of none, perhaps, so keen or sweet. But to this day, among all the Mater Dolorosas of Christianity, Cimabue's at Assisi is the noblest; nor did any painter after him add one link to the chain of thought with which he summed the creation of the earth, and preached its redemption.
+
+He evidently never checked the boy, from the first day he found him. Showed him all he knew: talked with him of many things he felt himself unable to paint: made him a workman and a gentleman,—above all, a Christian,—yet left him—a shepherd. And Heaven had made him such a painter, that, at his height, the words of his epitaph are in nowise overwrought: "Ille ego sum, per quem pictura extincta revixit."
+
+A word or two, now, about the repainting by which this pictura extincta has been revived to meet existing taste. The sky is entirely daubed over with fresh blue; yet it leaves with unusual care the original outline of the descending angel, and of the white clouds about his body. This idea of the angel laying his hands on the two heads—(as a bishop at Confirmation does, in a hurry; and I've seen one sweep four together, like Arnold de Winkelied),—partly in blessing, partly as a symbol of their being brought together to the same place by God,—was afterwards repeated again and again: there is one beautiful little echo of it among the old pictures in the schools of Oxford. This is the first occurrence of it that I know in pure Italian painting; but the idea is Etruscan-Greek, and is used by the Etruscan sculptors of the door of the Baptistery of Pisa, of the evil angel, who "lays the heads together" of two very different persons from these—Herodias and her daughter.
+
+Joachim, and the shepherd with the larkspur cap, are both quite safe; the other shepherd a little reinforced; the black bunches of grass, hanging about are retouches. They were once bunches of plants drawn with perfect delicacy and care; you may see one left, faint, with heart-shaped leaves, on the highest ridge of rock above the shepherds. The whole landscape is, however, quite undecipherably changed and spoiled.
+
+You will be apt to think at first, that if anything has been restored, surely the ugly shepherd's uglier feet have. No, not at all. Restored feet are always drawn with entirely orthodox and academical toes, like the Apollo Belvidere's. You would have admired them very much. These are Giotto's own doing, every bit; and a precious business he has had of it, trying again and again—in vain. Even hands were difficult enough to him, at this time; but feet, and bare legs! Well, he'll have a try, he thinks, and gets really a fair line at last, when you are close to it; but, laying the light on the ground afterwards, he dare not touch this precious and dear-bought outline. Stops all round it, a quarter of an inch off, [Footnote: Perhaps it is only the restorer's white on the ground that stops; but I think a restorer would never have been so wise, but have gone right up to the outline, and spoiled all.] with such effect as you see. But if you want to know what sort of legs and feet he can draw, look at our lambs, in the corner of the fresco under the arch on your left!
+
+And there is one on your right, though more repainted—the little Virgin presenting herself at the Temple,—about which I could also say much. The stooping figure, kissing the hem of her robe without her knowing, is, as far as I remember, first in this fresco; the origin, itself, of the main design in all the others you know so well; (and with its steps, by the way, in better perspective already than most of them).
+
+"This the original one!" you will be inclined to exclaim, if you have any general knowledge of the subsequent art. "This Giotto! why it's a cheap rechauffé of Titian!" No, my friend. The boy who tried so hard to draw those steps in perspective had been carried down others, to his grave, two hundred years before Titian ran alone at Cadore. But, as surely as Venice looks on the sea, Titian looked upon this, and caught the reflected light of it forever.
+
+What kind of boy is this, think you, who can make Titian his copyist,—Dante his friend? What new power is here which is to change the heart of Italy?—can you see it, feel it, writing before you these words on the faded wall?
+
+"You shall see things—as they Are."
+
+"And the least with the greatest, because God made them."
+
+"And the greatest with the least, because God made you, and gave you eyes and a heart."
+
+I. You shall see things—as they are. So easy a matter that, you think? So much more difficult and sublime to paint grand processions and golden thrones, than St. Anne faint on her pillow, and her servant at pause?
+
+Easy or not, it is all the sight that is required of you in this world,—to see things, and men, and yourself,—as they are.
+
+II. And the least with the greatest, because God made them,—shepherd, and flock, and grass of the field, no less than the Golden Gate.
+
+III. But also the golden gate of Heaven itself, open, and the angels of God coming down from it.
+
+These three things Giotto taught, and men believed, in his day. Of which Faith you shall next see brighter work; only before we leave the cloister, I want to sum for you one or two of the instant and evident technical changes produced in the school of Florence by this teaching.
+
+One of quite the first results of Giotto's simply looking at things as they were, was his finding out that a red thing was red, and a brown thing brown, and a white thing white—all over.
+
+The Greeks had painted anything anyhow,—gods black, horses red, lips and cheeks white; and when the Etruscan vase expanded into a Cimabue picture, or a Tafi mosaic, still,—except that the Madonna was to have a blue dress, and everything else as much gold on it as could be managed,—there was very little advance in notions of colour. Suddenly, Giotto threw aside all the glitter, and all the conventionalism; and declared that he saw the sky blue, the tablecloth white, and angels, when he dreamed of them, rosy. And he simply founded the schools of colour in Italy—Venetian and all, as I will show you to-morrow morning, if it is fine. And what is more, nobody discovered much about colour after him.
+
+But a deeper result of his resolve to look at things as they were, was his getting so heartily interested in them that he couldn't miss their decisive moment. There is a decisive instant in all matters; and if you look languidly, you are sure to miss it. Nature seems always, somehow, trying to make you miss it. "I will see that through," you must say, "with out turning my head"; or you won't see the trick of it at all. And the most significant thing in all his work, you will find hereafter, is his choice of moments. I will give you at once two instances in a picture which, for other reasons, you should quickly compare with these frescos. Return by the Via delle Belle Donne; keep the Casa Strozzi on your right; and go straight on, through the market. The Florentines think themselves so civilized, forsooth, for building a nuovo Lung-Arno, and three manufactory chimneys opposite it: and yet sell butchers' meat, dripping red, peaches, and anchovies, side by side: it is a sight to be seen. Much more, Luca della Robbia's Madonna in the circle above the chapel door. Never pass near the market without looking at it; and glance from the vegetables underneath to Luca's leaves and lilies, that you may see how honestly he was trying to make his clay like the garden-stuff. But to-day, you may pass quickly on to the Uffizii, which will be just open; and when you enter the great gallery, turn to the right, and there, the first picture you come at will be No. 6, Giotto's "Agony in the garden."
+
+I used to think it so dull that I could not believe it was Giotto's. That is partly from its dead colour, which is the boy's way of telling you it is night:—more from the subject being one quite beyond his age, and which he felt no pleasure in trying at. You may see he was still a boy, for he not only cannot draw feet yet, in the least, and scrupulously hides them therefore; but is very hard put to it for the hands, being obliged to draw them mostly in the same position,—all the four fingers together. But in the careful bunches of grass and weeds you will see what the fresco foregrounds were before they got spoiled; and there are some things he can understand already, even about that Agony, thinking of it in his own fixed way. Some things,—not altogether to be explained by the old symbol of the angel with the cup. He will try if he cannot explain them better in those two little pictures below; which nobody ever looks at; the great Roman sarcophagus being put in front of them, and the light glancing on the new varnish so that you must twist about like a lizard to see anything. Nevertheless, you may make out what Giotto meant.
+
+"The cup which my Father hath given me, shall I not drink it?" In what was its bitterness?—thought the boy. "Crucifixion?—Well, it hurts, doubtless; but the thieves had to bear it too, and many poor human wretches have to bear worse on our battlefields. But"—and he thinks, and thinks, and then he paints his two little pictures for the predella.
+
+They represent, of course, the sequence of the time in Gethsemane; but see what choice the youth made of his moments, having two panels to fill. Plenty of choice for him—in pain. The Flagellation—the Mocking—the Bearing of the Cross;—all habitually given by the Margheritones, and their school, as extremes of pain.
+
+"No," thinks Giotto. "There was worse than all that. Many a good man has been mocked, spitefully entreated, spitted on, slain. But who was ever so betrayed? Who ever saw such a sword thrust in his mother's heart?"
+
+He paints, first, the laying hands on Him in the garden, but with only two principal figures,—Judas and Peter, of course; Judas and Peter were always principal in the old Byzantine composition,—Judas giving the kiss—Peter cutting off the servant's ear. But the two are here, not merely principal, but almost alone in sight, all the other figures thrown back; and Peter is not at all concerned about the servant, or his struggle with him. He has got him down,—but looks back suddenly at Judas giving the kiss. What!—you are the traitor, then—you!
+
+"Yes," says Giotto; "and you, also, in an hour more."
+
+The other picture is more deeply felt, still. It is of Christ brought to the foot of the cross. There is no wringing of hands or lamenting crowd—no haggard signs of fainting or pain in His body. Scourging or fainting, feeble knee and torn wound,—he thinks scorn of all that, this shepherd-boy. One executioner is hammering the wedges of the cross harder down. The other—not ungently—is taking Christ's red robe off His shoulders. And St. John, a few yards off, is keeping his mother from coming nearer. She looks down, not at Christ; but tries to come.
+
+And now you may go on for your day's seeings through the rest of the gallery, if you will—Fornarina, and the wonderful cobbler, and all the rest of it. I don't want you any more till to-morrow morning.
+
+But if, meantime, you will sit down,—say, before Sandro Botticelli's "Fortitude," which I shall want you to look at, one of these days; (No. 1299, innermost room from the Tribune,) and there read this following piece of one of my Oxford lectures on the relation of Cimabue to Giotto, you will be better prepared for our work to-morrow morning in Santa Croce; and may find something to consider of, in the room you are in. Where, by the way, observe that No. 1288 is a most true early Lionardo, of extreme interest: and the savants who doubt it are—never mind what; but sit down at present at the feet of Fortitude, and read.
+
+Those of my readers who have been unfortunate enough to interest themselves in that most profitless of studies—the philosophy of art—have been at various times teased or amused by disputes respecting the relative dignity of the contemplative and dramatic schools.
+
+Contemplative, of course, being the term attached to the system of painting things only for the sake of their own niceness—a lady because she is pretty, or a lion because he is strong: and the dramatic school being that which cannot be satisfied unless it sees something going on: which can't paint a pretty lady unless she is being made love to, or being murdered; and can't paint a stag or a lion unless they are being hunted, or shot, or the one eating the other.
+
+You have always heard me—or, if not, will expect by the very tone of this sentence to hear me, now, on the whole recommend you to prefer the Contemplative school. But the comparison is always an imperfect and unjust one, unless quite other terms are introduced.
+
+The real greatness or smallness of schools is not in their preference of inactivity to action, nor of action to inactivity. It is in their preference of worthy things to unworthy, in rest; and of kind action to unkind, in business.
+
+A Dutchman can be just as solemnly and entirely contemplative of a lemon pip and a cheese paring, as an Italian of the Virgin in Glory. An English squire has pictures, purely contemplative, of his favorite horse—and a Parisian lady, pictures, purely contemplative, of the back and front of the last dress proposed to her in La Mode Artistique. All these works belong to the same school of silent admiration;—the vital question concerning them is, "What do you admire?"
+
+Now therefore, when you hear me so often saying that the Northern races—Norman and Lombard,—are active, or dramatic, in their art; and that the Southern races—Greek and Arabian,—are contemplative, you ought instantly to ask farther, Active in what? Contemplative of what? And the answer is, The active art—Lombardic,—rejoices in hunting and fighting; the contemplative art—Byzantine,—contemplates the mysteries of the Christian faith.
+
+And at first, on such answer, one would be apt at once to conclude—All grossness must be in the Lombard; all good in the Byzantine. But again we should be wrong,—and extremely wrong. For the hunting and fighting did practically produce strong, and often virtuous, men; while the perpetual and inactive contemplation of what it was impossible to understand, did not on the whole render the contemplative persons, stronger, wiser, or even more amiable. So that, in the twelfth century, while the Northern art was only in need of direction, the Southern was in need of life. The North was indeed spending its valour and virtue on ignoble objects; but the South disgracing the noblest objects by its want of valour and virtue.
+
+Central stood Etruscan Florence—her root in the earth, bound with iron and brass—wet with the dew of heaven. Agriculture in occupation, religious in thought, she accepted, like good ground, the good; refused, like the Rock of Fesole, the evil; directed the industry of the Northman into the arts of peace; kindled the dreams of the Byzantine with the fire of charity. Child of her peace, and exponent of her passion, her Cimabue became the interpreter to mankind of the meaning of the Birth of Christ.
+
+We hear constantly, and think naturally, of him as of a man whose peculiar genius in painting suddenly reformed its principles; who suddenly painted, out of his own gifted imagination, beautiful instead of rude pictures; and taught his scholar Giotto to carry on the impulse; which we suppose thenceforward to have enlarged the resources and bettered the achievements of painting continually, up to our own time,—when the triumphs of art having been completed, and its uses ended, something higher is offered to the ambition of mankind; and Watt and Faraday initiate the Age of Manufacture and Science, as Cimabue and Giotto instituted that of Art and Imagination.
+
+In this conception of the History of Mental and Physical culture, we much overrate the influence, though we cannot overrate the power, of the men by whom the change seems to have been effected. We cannot overrate their power,—for the greatest men of any age, those who become its leaders when there is a great march to be begun, are indeed separated from the average intellects of their day by a distance which is immeasurable in any ordinary terms of wonder.
+
+But we far overrate their influence; because the apparently sudden result of their labour or invention is only the manifested fruit of the toil and thought of many who preceded them, and of whose names we have never heard. The skill of Cimabue cannot be extolled too highly; but no Madonna by his hand could ever have rejoiced the soul of Italy, unless for a thousand years before, many a nameless Greek and nameless Goth had adorned the traditions, and lived in the love, of the Virgin.
+
+In like manner, it is impossible to overrate the sagacity, patience, or precision, of the masters in modern mechanical and scientific discovery. But their sudden triumph, and the unbalancing of all the world by their words, may not in any wise be attributed to their own power, or even to that of the facts they have ascertained. They owe their habits and methods of industry to the paternal example, no less than the inherited energy, of men who long ago prosecuted the truths of nature, through the rage of war, and the adversity of superstition; and the universal and overwhelming consequences of the facts which their followers have now proclaimed, indicate only the crisis of a rapture produced by the offering of new objects of curiosity to nations who had nothing to look at; and of the amusement of novel motion and action to nations who had nothing to do.
+
+Nothing to look at! That is indeed—you will find, if you consider of it—our sorrowful case. The vast extent of the advertising frescos of London, daily refreshed into brighter and larger frescos by its billstickers, cannot somehow sufficiently entertain the popular eyes. The great Mrs. Allen, with her flowing hair, and equally flowing promises, palls upon repetition, and that Madonna of the nineteenth century smiles in vain above many a borgo unrejoiced; even the excitement of the shop-window, with its unattainable splendours, or too easily attainable impostures, cannot maintain itself in the wearying mind of the populace, and I find my charitable friends inviting the children, whom the streets educate only into vicious misery, to entertainments of scientific vision, in microscope or magic lantern; thus giving them something to look at, such as it is;—fleas mostly; and the stomachs of various vermin; and people with their heads cut off and set on again;—still something, to look at.
+
+The fame of Cimabue rests, and justly, on a similar charity. He gave the populace of his day something to look at; and satisfied their curiosity with science of something they had long desired to know. We have continually imagined in our carelessness, that his triumph consisted only in a new pictorial skill; recent critical writers, unable to comprehend how any street populace could take pleasure in painting, have ended by denying his triumph altogether, and insisted that he gave no joy to Florence; and that the "Joyful quarter" was accidentally so named—or at least from no other festivity than that of the procession attending Charles of Anjou. I proved to you, in a former lecture, that the old tradition was true, and the delight of the people unquestionable. But that delight was not merely in the revelation of an art they had not known how to practise; it was delight in the revelation of a Madonna whom they had not known how to love.
+
+Again; what was revelation to them—we suppose farther and as unwisely, to have been only art in him; that in better laying of colours,—in better tracing of perspectives—in recovery of principles, of classic composition—he had manufactured, as our Gothic Firms now manufacture to order, a Madonna—in whom he believed no more than they.
+
+Not so. First of the Florentines, first of European men—he attained in thought, and saw with spiritual eyes, exercised to discern good from evil,—the face of her who was blessed among women; and with his following hand, made visible the Magnificat of his heart.
+
+He magnified the Maid; and Florence rejoiced in her Queen. But it was left for Giotto to make the queenship better beloved, in its sweet humiliation.
+
+You had the Etruscan stock in Florence—Christian, or at least semi-Christian; the statue of Mars still in its streets, but with its central temple built for Baptism in the name of Christ. It was a race living by agriculture; gentle, thoughtful, and exquisitely fine in handiwork. The straw bonnet of Tuscany—the Leghorn—is pure Etruscan art, young ladies:—only plaited gold of God's harvest, instead of the plaited gold of His earth.
+
+You had then the Norman and Lombard races coming down on this: kings, and hunters—splendid in war—insatiable of action. You had the Greek and Arabian races flowing from the east, bringing with them the law of the City, and the dream of the Desert.
+
+Cimabue—Etruscan born, gave, we saw, the life of the Norman to the tradition of the Greek: eager action to holy contemplation. And what more is left for his favourite shepherd boy Giotto to do, than this, except to paint with ever-increasing skill? We fancy he only surpassed Cimabue—eclipsed by greater brightness.
+
+Not so. The sudden and new applause of Italy would never have been won by mere increase of the already-kindled light. Giotto had wholly another work to do. The meeting of the Norman race with the Byzantine is not merely that of action with repose—not merely that of war with religion,—it is the meeting of domestic life with monastic, and of practical household sense with unpractical Desert insanity.
+
+I have no other word to use than this last. I use it reverently, meaning a very noble thing; I do not know how far I ought to say—even a divine thing. Decide that for yourselves. Compare the Northern farmer with St. Francis; the palm hardened by stubbing Thornaby waste, with the palm softened by the imagination of the wounds of Christ. To my own thoughts, both are divine; decide that for yourselves; but assuredly, and without possibility of other decision, one is, humanly speaking, healthy; the other unhealthy; one sane, the other—insane.
+
+To reconcile Drama with Dream, Cimabue's task was comparatively an easy one. But to reconcile Sense with—I still use even this following word reverently—Nonsense, is not so easy; and he who did it first,—no wonder he has a name in the world.
+
+I must lean, however, still more distinctly on the word "domestic." For it is not Rationalism and commercial competition—Mr. Stuart Mill's" other career for woman than that of wife and mother "—which are reconcilable, by Giotto, or by anybody else, with divine vision. But household wisdom, labour of love, toil upon earth according to the law of Heaven—these are reconcilable, in one code of glory, with revelation in cave or island, with the endurance of desolate and loveless days, with the repose of folded hands that wait Heaven's time.
+
+Domestic and monastic. He was the first of Italians—the first of Christians—who equally knew the virtue of both lives; and who was able to show it in the sight of men of all ranks,—from the prince to the shepherd; and of all powers,—from the wisest philosopher to the simplest child.
+
+For, note the way in which the new gift of painting, bequeathed to him by his great master, strengthened his hands. Before Cimabue, no beautiful rendering of human form was possible; and the rude or formal types of the Lombard and Byzantine, though they would serve in the tumult of the chase, or as the recognized symbols of creed, could not represent personal and domestic character. Faces with goggling eyes and rigid lips might be endured with ready help of imagination, for gods, angels, saints, or hunters—or for anybody else in scenes of recognized legend, but would not serve for pleasant portraiture of one's own self—or of the incidents of gentle, actual life. And even Cimabue did not venture to leave the sphere of conventionally reverenced dignity. He still painted—though beautifully—only the Madonna, and the St. Joseph, and the Christ. These he made living,—Florence asked no more: and "Credette Cimabue nella pintura tener lo campo."
+
+But Giotto came from the field, and saw with his simple eyes a lowlier worth. And he painted—the Madonna, and St. Joseph, and the Christ,—yes, by all means if you choose to call them so, but essentially,—Mamma, Papa, and the Baby. And all Italy threw up its cap,—"Ora ha Giotto il grido."
+
+For he defines, explains, and exalts, every sweet incident of human nature; and makes dear to daily life every mystic imagination of natures greater than our own. He reconciles, while he intensifies, every virtue of domestic and monastic thought. He makes the simplest household duties sacred, and the highest religious passions serviceable and just.
