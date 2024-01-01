@@ -141,6 +141,7 @@ Murray先生告诉你这是些“浅浮雕”（噫嘘唏！是的，现在相�
 
 
 ## DAY 2 金门（The Golden Gate）
+
 今天，尽量早点出发，在做别的事情之前，先去乔托自己的教区教堂，新圣母大殿（Santa Maria Novella）。如果你从斯特罗齐宫（Palazzo Strozzi）出发，向右找到“美人路”[译者注：路名来源于性产业。]，就可以快速抵达。
 
 不要让任何熟人、看守或偶然的景象阻止你执行我的指示。直接走向教堂，进入它的后殿；你可以在走的过程中留意一下窗花的光辉，只是要注意一下半道上的台阶。拉开帘子，走到大理石祭坛后面，无论用什么代价，打发走跟着你要这要那的人。
@@ -210,58 +211,58 @@ Murray先生告诉你这是些“浅浮雕”（噫嘘唏！是的，现在相�
 显然，契马布埃从一开始就未限制过乔托的创造。他向他展示了自己所知的一切：与他讨论了许多他觉得无法作画的事情，让他成为了一位工匠和绅士，以及最重要的，一位基督徒，也让他保留了牧羊人的一些特质。上天让他成为了一名如此出色的画家，他的墓志铭并非言过其实：“Ille ego sum, per quem pictura extincta revixit.”[译者译：我就是那个让逝去绘画复苏的人。]
 
 现在稍微谈下这幅画被重绘的事。这幅“逝去绘画”被修得更迎合当下的品味。天空被彻彻底底涂上了新鲜的蓝色，不过，从天而降的天使、以及它身边云朵的轮廓被异常谨慎地保留了。这个天使想要用手触摸两个脑袋——就像主教在振礼上匆匆忙忙做的；我曾经见过有个主教一挥手扫过了四个脑袋，如同阿诺德·德·温克利特（[Arnold de Winkelied](https://en.wikipedia.org/wiki/Arnold_von_Winkelried)）
-——这个举动一半是为了祝福，另一半则是象征着上帝把他们带到一起。这个范式后来被一再使用，在牛津学院的旧收藏里也能看到其回响。据我所知，这是这个动作在纯粹的意大利会话中首次出现。但是它其实来自于伊特鲁利亚-希腊艺术。在比萨洗礼堂的门上，本地的雕刻家用这个姿势雕刻邪恶的天使，他把“两个头紧贴在一起”，不过这两个人身份与此处的截然不同，是希罗底和她的女儿。
+——这个举动一半是为了祝福，另一半则是象征着上帝把他们带到一起。这个范式后来被一再使用，在牛津学院的旧收藏里也能看到其回响。据我所知，这是这个动作在纯粹的意大利会话绘画中首次出现。但是它其实来自于伊特鲁利亚-希腊艺术。在比萨洗礼堂的门上，本地的雕刻家用这个姿势雕刻邪恶的天使，他把“两个头紧贴在一起”，不过这两个人身份与此处的截然不同，是希罗底和她的女儿。
+
+约阿希姆和那个戴着宽檐帽的牧羊人保留完好，另一个牧羊人被稍微修复了一下。周围的黑色草束是被修改过了的。画家曾经小心翼翼地绘制了这些草束，你可以隐约看到在牧羊人上方的山脊上的一束草有着心型的叶子。然而，画面整体上有了糟糕的、难以辨认的改变。
+
+你一开始可能会认为，如果有什么东西被修复了，那肯定是那个丑陋的牧羊人更加丑陋的脚。不，并非如此。修复后的脚总是有画得完全符合正统学院派的脚趾，就像观景台的阿波罗（Apollo del Belvedere）那样。你本该十分欣赏他们。这是乔托自己画的，每一寸都是；他为此付出了极大的努力，一再尝试，却无济于事。对他而言，哪怕是手已经够难画的了，更别提脚和裸露的腿了！好吧，他觉得他可以试试。当你近距离看时，能看到他画出了一条相当漂亮的线，但是在他上色时，他不敢触碰那条珍贵的轮廓线，他停在了离线四分之一英寸左右的位置。（作者注：也许那只是修复者留下来的白色，不过我认为一个修复者永远不可能那么睿智，他会直接碰到轮廓线，然后把一切都搞砸。）效果就是如此。如果你想看看他能画出什么样的腿，不如就看看你左边拱门壁画角落里的小羊吧！
+
+你右侧的画经历了更多的修复。画中的小小圣母在盛典里——对此我也可以讲很多。那个俯下身的身影在她不知情的情况下亲吻她袍子的下摆。据我所知，这个主题首次在壁画中出现，它就是那些你所熟知的同样题材的画作的起源（顺带一提，这幅画上楼梯的透视比其他绝大多数画作都要准确）。
+
+
+“这就是原创作品！”如果你有一点相关知识，你可能会情不自禁地感叹道，“这就是乔托！有点像在炒提香的冷饭！”不，我的朋友。当提香在卡多雷（Cadore）成为大师时，那个努力尝试画下这些楼梯透视的少年已经在坟墓里安睡了近二百年。但是，就如威尼斯城俯瞰着大海那样，提香俯瞰这幅画，并永远捕捉到了其中闪耀的光辉。
+
+这个男孩是何等人物，能让提香效仿他，让但丁成为他的朋友？这里有什么样的新力量，能够改变意大利的心灵？你能看到吗，这面褪色的墙上写就了这些画：
+
+“你应以事物的原貌看到他们。”
+
+“看到最微小的，如同看到最伟大的，因为神造就了他们。”
+
+“看到最伟大的，如同看到最微小的，因为神造就了你，给予你眼睛和心灵。”
+
+1. 你应看到事物的原貌。你会不会觉得是很简单的事情？画庞大的游行队伍和金色的王座，是否比画圣安娜晕厥在枕头上和她休息的仆人更加困难和崇高？
+
+无论简单与否，这是你在这个世界上所需要具备的全部洞察力——看到事物、人物和自身的原貌。
+
+2. 看到最微小的，如同看到最伟大的，因为神造就了他们——牧羊人，羊群，田间的草木，和金门同样重要。
+
+3. 但也同样包括天堂的黄金之门，敞开着，神之天使从那里降临。
+
+这就乔托的三样教导，在乔托时代的人们也是相信的。关于这信仰，你接下来会看到更为出色的作品。只是在离开回廊之前，我想为你总结一下这种教导给佛罗伦萨学派带来的迅速而明显的一两点技术变化。
+
+第一点，也是乔托简单地描绘事物原貌的结果是，他发现红色的东西是红色的， 棕色的东西是棕色的，白色的东西是白色的——仅此而已。
+
+古希腊人的绘画毫无规矩可言，神可以是黑色的，马可以是红色的，脸颊和嘴唇可以是白色的。当伊特鲁利亚陶瓶演变成了契马布埃的画作或是塔菲（Andrea Tafi）的马赛克画时，还是这种情况，只是变成了圣母的袍子必须是蓝色的，其他的东西应该尽可能涂成金色。人们对色彩的观念没有多少改进。突然间，乔托抛开了金闪闪的色彩和其他所有套路，他宣布，自己看到的天是蓝色的，桌布是白色的，还有他梦里的天使，是红粉色的。他在意大利创建了色彩画派，包括了威尼斯画派等等。如果明天天气好，我会向你展示。更重要的是，在他之后，没再有人比他在色彩上更有进展。
+
+不过，他决心以事物原貌看待它们的一个更深层的影响是，他对它们产生了浓厚的兴趣，以致他不会错过它们的决定性时刻。所有的事情都有一个决定性的时刻，如果你看得懒洋洋的，那你肯定会错过。似乎自然总是以某种方法试图让你错过它。你必须说：“我会看到这一点的，目不转睛。”要么你就无法明察其中玄机。在乔托所有的作品里，你会发现就是他选择表现的时刻十分关键。我会给你一两个例子，你可以把它们与这些壁画快速地做个比较。从“美女之路”回来，让斯特罗齐宫始终处于你的右手边，直走，穿过市场。佛罗伦萨人认为他们十分文明，为在阿诺河沿岸建了新的河畔大道感到自鸣得意，尽管对面就是顶着三个烟囱的工厂。他们的市场上买着滴着红色肉汁的肉、桃子和凤尾鱼，更是叹为观止。更重要的是，卢卡·德拉·罗比亚在小圣堂门上的圆形圣母像。每次来到市场附近都不要错过它。看一眼市场里的蔬菜，再看卢卡雕出来的的叶子和百合花，你或许就能领略到他如何真诚地使用他的粘土，就像摆弄他园子里的东西那样。但今天，你得快点去刚刚开门的乌菲兹。当你进入这个伟大的美术馆时，向右转，在6号展厅的第一幅画就是乔托的《园中苦祷》（Agony in the garden）。
+
+我一度认为这幅画太过沉闷，简直不敢相信是乔托的作品。这种感觉一定程度上来自画中死气沉沉的颜色，这是画家用来表达夜晚的方式。更重要的原因是主题远远超过了他的年龄，他在挑战的过程中体会不到快乐。你可以看出，他还是一个少年。他画脚还不够熟练——所以他才会小心翼翼把人物的脚藏起来，画手也很难表现出不同的手势和角度，大多数时候只是画成相同的样子，四只手指粘在一起。但是从那些精心描绘的花草中，你可以想象出之前那幅壁画在被损坏前会是什么样子。他对“痛苦”（Agony）已经有了自己的理解。有些事情，不能完全用带着圣杯的天使来解释。他尝试在下面的两幅小画里尽力解释——然而，没有人会仔细看它们，因为它们面前摆了一座巨大的罗马石棺，而且光线反射在清漆上，你必须像一只蜥蜴一样扭动身体，才能看到画面的全部细节。尽管如此，你还是能领会乔托的意图。
+
+“我父赐我的那杯，我岂能不喝呢？”它为何而苦涩？少年想，“钉十字架？好吧，无疑会很痛苦，但是那两个贼也要承受，而许多可怜的人还要在我们的战场上承受更糟糕的事情。但是……”他思来想去，为祭坛画了两幅小画。
+
+两幅画按在客西马尼园发生之事的时间顺序排列。不过瞧瞧这个少年选择了哪两个主题。关于痛苦，他可以有很多选择，鞭打、嘲笑、背负十字架，这些都是被马格利托（Margaritone Aretino）家族及其画派视为极度痛苦的瞬间。
+
+“不。”乔托想，“还有更糟的。许多好人都曾被嘲笑、被恶意对待、被戳穿，被杀害。但是又有谁遭受过如此背叛？谁曾看到这样一柄剑刺入他母亲的胸膛？”
+
+他首先描绘了客西马尼园中抓捕的场面，但是只有两个主要人物——犹大和彼得，当然啦。犹大和彼得在旧式拜占庭构图中总是中心人物，犹大献吻，而彼得切掉了一个仆人的耳朵。但是在这里，这两个人不仅是主要人物，还是唯二可以看到的。其他所有人物都被推到了背景里。彼得对仆人，或说对他与仆人的搏斗并不关心。他把他放倒了，突然回头看着献吻的犹大。什么！——你就是叛徒，是你！
+
+“是的，”乔托说，“你也是，在一个小时以后。”
+
+另一副画甚至更加深刻。它描绘的是基督被带到十字架脚下。画中没有绞着手哭泣的人群，基督的身体也没有表现出虚弱或痛苦的症状。受到鞭笞、昏倒、膝盖发软还有伤口破裂，这对于牧羊少年来说不值一提。一个侩子手正在敲打固定十字架的楔子，另一个则正在毫不留情地脱下基督的红袍。离他们几尺远的地方，圣约翰正在阻止耶稣母亲的靠近。她看着地面，没看耶稣，但是她试图靠近。
+
+现在，你用剩下的时间看剩下的画廊，如果你想的话。看看弗纳丽娜（La Fornarina），看看美妙的鞋匠（the wonderful cobbler），以及其它所有作品。直到明天早上，我不会再需要你了。
 
 %%%%
-
-
-Joachim, and the shepherd with the larkspur cap, are both quite safe; the other shepherd a little reinforced; the black bunches of grass, hanging about are retouches. They were once bunches of plants drawn with perfect delicacy and care; you may see one left, faint, with heart-shaped leaves, on the highest ridge of rock above the shepherds. The whole landscape is, however, quite undecipherably changed and spoiled.
-
-You will be apt to think at first, that if anything has been restored, surely the ugly shepherd's uglier feet have. No, not at all. Restored feet are always drawn with entirely orthodox and academical toes, like the Apollo Belvidere's. You would have admired them very much. These are Giotto's own doing, every bit; and a precious business he has had of it, trying again and again—in vain. Even hands were difficult enough to him, at this time; but feet, and bare legs! Well, he'll have a try, he thinks, and gets really a fair line at last, when you are close to it; but, laying the light on the ground afterwards, he dare not touch this precious and dear-bought outline. Stops all round it, a quarter of an inch off, [Footnote: Perhaps it is only the restorer's white on the ground that stops; but I think a restorer would never have been so wise, but have gone right up to the outline, and spoiled all.] with such effect as you see. But if you want to know what sort of legs and feet he can draw, look at our lambs, in the corner of the fresco under the arch on your left!
-
-And there is one on your right, though more repainted—the little Virgin presenting herself at the Temple,—about which I could also say much. The stooping figure, kissing the hem of her robe without her knowing, is, as far as I remember, first in this fresco; the origin, itself, of the main design in all the others you know so well; (and with its steps, by the way, in better perspective already than most of them).
-
-"This the original one!" you will be inclined to exclaim, if you have any general knowledge of the subsequent art. "This Giotto! why it's a cheap rechauffé of Titian!" No, my friend. The boy who tried so hard to draw those steps in perspective had been carried down others, to his grave, two hundred years before Titian ran alone at Cadore. But, as surely as Venice looks on the sea, Titian looked upon this, and caught the reflected light of it forever.
-
-What kind of boy is this, think you, who can make Titian his copyist,—Dante his friend? What new power is here which is to change the heart of Italy?—can you see it, feel it, writing before you these words on the faded wall?
-
-"You shall see things—as they Are."
-
-"And the least with the greatest, because God made them."
-
-"And the greatest with the least, because God made you, and gave you eyes and a heart."
-
-I. You shall see things—as they are. So easy a matter that, you think? So much more difficult and sublime to paint grand processions and golden thrones, than St. Anne faint on her pillow, and her servant at pause?
-
-Easy or not, it is all the sight that is required of you in this world,—to see things, and men, and yourself,—as they are.
-
-II. And the least with the greatest, because God made them,—shepherd, and flock, and grass of the field, no less than the Golden Gate.
-
-III. But also the golden gate of Heaven itself, open, and the angels of God coming down from it.
-
-These three things Giotto taught, and men believed, in his day. Of which Faith you shall next see brighter work; only before we leave the cloister, I want to sum for you one or two of the instant and evident technical changes produced in the school of Florence by this teaching.
-
-One of quite the first results of Giotto's simply looking at things as they were, was his finding out that a red thing was red, and a brown thing brown, and a white thing white—all over.
-
-The Greeks had painted anything anyhow,—gods black, horses red, lips and cheeks white; and when the Etruscan vase expanded into a Cimabue picture, or a Tafi mosaic, still,—except that the Madonna was to have a blue dress, and everything else as much gold on it as could be managed,—there was very little advance in notions of colour. Suddenly, Giotto threw aside all the glitter, and all the conventionalism; and declared that he saw the sky blue, the tablecloth white, and angels, when he dreamed of them, rosy. And he simply founded the schools of colour in Italy—Venetian and all, as I will show you to-morrow morning, if it is fine. And what is more, nobody discovered much about colour after him.
-
-But a deeper result of his resolve to look at things as they were, was his getting so heartily interested in them that he couldn't miss their decisive moment. There is a decisive instant in all matters; and if you look languidly, you are sure to miss it. Nature seems always, somehow, trying to make you miss it. "I will see that through," you must say, "with out turning my head"; or you won't see the trick of it at all. And the most significant thing in all his work, you will find hereafter, is his choice of moments. I will give you at once two instances in a picture which, for other reasons, you should quickly compare with these frescos. Return by the Via delle Belle Donne; keep the Casa Strozzi on your right; and go straight on, through the market. The Florentines think themselves so civilized, forsooth, for building a nuovo Lung-Arno, and three manufactory chimneys opposite it: and yet sell butchers' meat, dripping red, peaches, and anchovies, side by side: it is a sight to be seen. Much more, Luca della Robbia's Madonna in the circle above the chapel door. Never pass near the market without looking at it; and glance from the vegetables underneath to Luca's leaves and lilies, that you may see how honestly he was trying to make his clay like the garden-stuff. But to-day, you may pass quickly on to the Uffizii, which will be just open; and when you enter the great gallery, turn to the right, and there, the first picture you come at will be No. 6, Giotto's "Agony in the garden."
-
-I used to think it so dull that I could not believe it was Giotto's. That is partly from its dead colour, which is the boy's way of telling you it is night:—more from the subject being one quite beyond his age, and which he felt no pleasure in trying at. You may see he was still a boy, for he not only cannot draw feet yet, in the least, and scrupulously hides them therefore; but is very hard put to it for the hands, being obliged to draw them mostly in the same position,—all the four fingers together. But in the careful bunches of grass and weeds you will see what the fresco foregrounds were before they got spoiled; and there are some things he can understand already, even about that Agony, thinking of it in his own fixed way. Some things,—not altogether to be explained by the old symbol of the angel with the cup. He will try if he cannot explain them better in those two little pictures below; which nobody ever looks at; the great Roman sarcophagus being put in front of them, and the light glancing on the new varnish so that you must twist about like a lizard to see anything. Nevertheless, you may make out what Giotto meant.
-
-"The cup which my Father hath given me, shall I not drink it?" In what was its bitterness?—thought the boy. "Crucifixion?—Well, it hurts, doubtless; but the thieves had to bear it too, and many poor human wretches have to bear worse on our battlefields. But"—and he thinks, and thinks, and then he paints his two little pictures for the predella.
-
-They represent, of course, the sequence of the time in Gethsemane; but see what choice the youth made of his moments, having two panels to fill. Plenty of choice for him—in pain. The Flagellation—the Mocking—the Bearing of the Cross;—all habitually given by the Margheritones, and their school, as extremes of pain.
-
-"No," thinks Giotto. "There was worse than all that. Many a good man has been mocked, spitefully entreated, spitted on, slain. But who was ever so betrayed? Who ever saw such a sword thrust in his mother's heart?"
-
-He paints, first, the laying hands on Him in the garden, but with only two principal figures,—Judas and Peter, of course; Judas and Peter were always principal in the old Byzantine composition,—Judas giving the kiss—Peter cutting off the servant's ear. But the two are here, not merely principal, but almost alone in sight, all the other figures thrown back; and Peter is not at all concerned about the servant, or his struggle with him. He has got him down,—but looks back suddenly at Judas giving the kiss. What!—you are the traitor, then—you!
-
-"Yes," says Giotto; "and you, also, in an hour more."
-
-The other picture is more deeply felt, still. It is of Christ brought to the foot of the cross. There is no wringing of hands or lamenting crowd—no haggard signs of fainting or pain in His body. Scourging or fainting, feeble knee and torn wound,—he thinks scorn of all that, this shepherd-boy. One executioner is hammering the wedges of the cross harder down. The other—not ungently—is taking Christ's red robe off His shoulders. And St. John, a few yards off, is keeping his mother from coming nearer. She looks down, not at Christ; but tries to come.
-
-And now you may go on for your day's seeings through the rest of the gallery, if you will—Fornarina, and the wonderful cobbler, and all the rest of it. I don't want you any more till to-morrow morning.
 
 But if, meantime, you will sit down,—say, before Sandro Botticelli's "Fortitude," which I shall want you to look at, one of these days; (No. 1299, innermost room from the Tribune,) and there read this following piece of one of my Oxford lectures on the relation of Cimabue to Giotto, you will be better prepared for our work to-morrow morning in Santa Croce; and may find something to consider of, in the room you are in. Where, by the way, observe that No. 1288 is a most true early Lionardo, of extreme interest: and the savants who doubt it are—never mind what; but sit down at present at the feet of Fortitude, and read.
 
