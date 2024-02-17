@@ -292,32 +292,33 @@ Murray先生告诉你这是些“浅浮雕”（噫嘘唏！是的，现在相�
 
 契马布埃的名声无疑建立在一种相似的关怀上。他给他那个时代的平民阶层一些值得一看的东西，并满足了他们对某些他们早已渴望了解的事物的好奇心。在我们漫不经心的想象中，他的胜利仅仅是一种新的绘画技巧的胜利。近来有一些评论者，无法理解平民如何能够享受绘画，便得出了否定他胜利的结论，还坚称他从未给佛罗伦萨带来过任何喜悦。“欢乐区”的命名纯属偶然——至少因为安茹的夏尔（Charles d'Anjou）游行队伍以外的节庆活动。在之前的讲座里，我向您证明了古老传统的正确性，人们的喜悦是毋庸置疑的。但是，这种喜悦不仅仅来自于向他们揭示了一种未知的技法，更是因为揭示了以为他们不曾知道如何去爱的圣母。我曾在先前的讲座中向您证明，古老的传统是正确的，人们的喜悦是毋庸置疑的。但这种喜悦不仅仅是因为揭示了一种他们不知道如何实践的艺术；更是因为向他们展示了一位他们曾经不知道如何去爱的圣母。
 
+我们更进一步（且不太明智地）假设，被他们视为启示的东西，再乔托看来只不过是一种艺术。更精准地布色，更精确地描绘透视，重现古典构图，这一切只是为了制作像我们的哥特式公司依照订单制作那样制作一位圣母。他并不比他们更相信圣母。
+
+但情况并非如此。佛罗伦萨人是欧洲人的先锋，而乔托是佛罗伦萨人里的第一位，他想法高远，灵性的眼睛能够辨别善恶，看到了那位被神明祝福过的女性面容。他的手紧随其后，再现了他心中的赞美诗（Magnificat）[译者注：源自《路加福音》（Luke 1:46-55），是圣母玛利亚在探访以利沙伯时所唱的一首歌]。
+
+他荣耀了这位少女；佛罗伦萨为她的女王感到欢喜。但是，留给乔托接下来的工作则是，如何让女王的温柔谦卑更加受人爱戴。
+
+佛罗伦萨有着伊特鲁利亚的血统。佛罗伦萨人是基督徒，或者至少是半基督徒。战神的雕像仍然立于大街小巷，但是中心的神庙是以基督之名为受洗所建。这是一个以农业为生的种族，温和、深思熟虑、精于手艺活。托斯卡纳草帽（Leghorn）是纯粹的伊特鲁利亚艺术。他们用上帝收获的黄金编织，而非祂大地上收获的黄金编织[译者注：大概是说草帽的材料源自自然，其高贵的价值也不靠贵金属体现。]。
+
+然后，诺曼人和伦巴第人来了。在战争中获得辉煌的国王和猎人永远无法在行动中得到满足。希腊人和阿拉伯人从东边漂洋而至，带来了城邦的律法和沙漠的梦想。
+
+我们看到，出生在伊特鲁利亚的契马布埃把诺曼人的生命力带到了希腊传统之中，把热情地行动转化为圣洁的沉思。那么，对他最喜爱的牧羊少年乔托来说，除了用不断增长的技巧绘画，还剩什么可做呢？我们认为他只是被超越了契马布埃，一个被更大光辉遮蔽的人。
+
+事实绝非如此。意大利突然得到的新赞誉绝不仅是因为他们微微增强了已被点燃的光芒。乔托有完全不同的工作要做。诺曼族群和拜占庭文化的相遇不仅仅是行动和休息的融合，也不只是战争与宗教的相遇，而是家庭生活和修道生活的相遇，是持家的实际和沙漠的疯狂的相遇。
+
+除了最后这个词，我找不到别的词来形容。我谨慎地使用它，意指一种非常高尚的事物。我甚至觉得它是一种神圣的事物，只是不知道如何界定。你自己来决定吧。比较一下北方的农夫和方济各；比较一下清理索纳比（Thornaby）荒野的硬实的手掌，和被想象中基督伤口软化的手掌。在我的思绪中，两者皆是神圣的。你自己来决定吧。但可以肯定的是，无论如何，从人类的角度讲，一个是健康的，另一个是病态的；一个是理智的，另一个是疯狂的。
+
+契马布埃的任务相对容易——调和戏剧和梦境。但是要将理智和——我带着敬意使用接下来的这个词——荒谬，则并不那么容易。作为首次做到这一点的人，也难怪他享誉世界。
+
+然而，我必须更明确地依赖于使用“家庭”（domestic）这个词。理性主义和商业的竞争——也就是Stuart Mill所说的“女性在妻子和母亲之外的事业”并非能为乔托或其他人以一种神圣的视野所调和。但是持家的智慧，对劳动的热爱，按照天堂法则在地上的辛勤劳作——在荣耀的法典中，这些事物能与在洞穴或岛屿获得的启示、忍受孤独无爱的日子和等待天国的交叠的双手相调和。
+
+家庭和修道院。乔托是意大利中的第一人，也是基督徒中的第一人，能够同时了解两种生活的美德。他能在所有阶层的人——从王公到牧羊人，以及所有水平的人——从最智慧的哲学家到最单纯的孩童，面前展示这些美德。
+
+因此，请注意新的绘画技法是如何加强他的作画的，这是他伟大师傅遗赠给他的礼物。在契马布埃之前，无人能够绘制美丽的人物形象。伦巴第和拜占庭粗糙或刻板的外形，虽然混乱的狩猎或是信仰所认可的标志里可堪一用，但是不能表现个人和家庭生活中的形象。突出的眼睛，僵硬的嘴唇，这样的脸出现在神、天使、圣人、猎人或是传说人物身上时，还可以借助丰富的想象力让人勉强忍受。但是，这种脸不适合出用于愉快描绘自身生活、以及生活中的温柔景象。哪怕是契马布埃也不敢脱离传统的崇高范畴。尽管他的人物很美，但他只画玛丽亚、圣约瑟和耶稣基督。他赋予他们生命，佛罗伦萨也没有要求得更多：“契马布埃认为自己在绘画领域无与伦比（Credette Cimabue nella pintura tener lo campo）”
+
+但是，乔托出身田间乡野。他用他朴素的眼睛看到了低微事物的价值。他画了玛丽亚、圣约瑟和耶稣基督——如果你愿意这么称呼他们，但本质上，他们是妈妈、爸爸和宝宝。整个意大利欢呼雀跃：“如今乔托名声大噪（Ora ha Giotto il grido）。”[译者注：两句意大利语来自于但丁《炼狱篇》（XI，79-102）。]
+
+他定义、解释并升华了人性中每一个甜蜜的瞬间，让每一个高于我们日常生活的神秘想象变得更亲切。他调和并加强了家庭生活和修道生活中的每一种美德。他让最简单的家庭工作变得神圣，让最高贵的宗教激情变得有益且正当。
+
+
 %%%%
-
-Again; what was revelation to them—we suppose farther and as unwisely, to have been only art in him; that in better laying of colours,—in better tracing of perspectives—in recovery of principles, of classic composition—he had manufactured, as our Gothic Firms now manufacture to order, a Madonna—in whom he believed no more than they.
-
-Not so. First of the Florentines, first of European men—he attained in thought, and saw with spiritual eyes, exercised to discern good from evil,—the face of her who was blessed among women; and with his following hand, made visible the Magnificat of his heart.
-
-He magnified the Maid; and Florence rejoiced in her Queen. But it was left for Giotto to make the queenship better beloved, in its sweet humiliation.
-
-You had the Etruscan stock in Florence—Christian, or at least semi-Christian; the statue of Mars still in its streets, but with its central temple built for Baptism in the name of Christ. It was a race living by agriculture; gentle, thoughtful, and exquisitely fine in handiwork. The straw bonnet of Tuscany—the Leghorn—is pure Etruscan art, young ladies:—only plaited gold of God's harvest, instead of the plaited gold of His earth.
-
-You had then the Norman and Lombard races coming down on this: kings, and hunters—splendid in war—insatiable of action. You had the Greek and Arabian races flowing from the east, bringing with them the law of the City, and the dream of the Desert.
-
-Cimabue—Etruscan born, gave, we saw, the life of the Norman to the tradition of the Greek: eager action to holy contemplation. And what more is left for his favourite shepherd boy Giotto to do, than this, except to paint with ever-increasing skill? We fancy he only surpassed Cimabue—eclipsed by greater brightness.
-
-Not so. The sudden and new applause of Italy would never have been won by mere increase of the already-kindled light. Giotto had wholly another work to do. The meeting of the Norman race with the Byzantine is not merely that of action with repose—not merely that of war with religion,—it is the meeting of domestic life with monastic, and of practical household sense with unpractical Desert insanity.
-
-I have no other word to use than this last. I use it reverently, meaning a very noble thing; I do not know how far I ought to say—even a divine thing. Decide that for yourselves. Compare the Northern farmer with St. Francis; the palm hardened by stubbing Thornaby waste, with the palm softened by the imagination of the wounds of Christ. To my own thoughts, both are divine; decide that for yourselves; but assuredly, and without possibility of other decision, one is, humanly speaking, healthy; the other unhealthy; one sane, the other—insane.
-
-To reconcile Drama with Dream, Cimabue's task was comparatively an easy one. But to reconcile Sense with—I still use even this following word reverently—Nonsense, is not so easy; and he who did it first,—no wonder he has a name in the world.
-
-I must lean, however, still more distinctly on the word "domestic." For it is not Rationalism and commercial competition—Mr. Stuart Mill's" other career for woman than that of wife and mother "—which are reconcilable, by Giotto, or by anybody else, with divine vision. But household wisdom, labour of love, toil upon earth according to the law of Heaven—these are reconcilable, in one code of glory, with revelation in cave or island, with the endurance of desolate and loveless days, with the repose of folded hands that wait Heaven's time.
-
-Domestic and monastic. He was the first of Italians—the first of Christians—who equally knew the virtue of both lives; and who was able to show it in the sight of men of all ranks,—from the prince to the shepherd; and of all powers,—from the wisest philosopher to the simplest child.
-
-For, note the way in which the new gift of painting, bequeathed to him by his great master, strengthened his hands. Before Cimabue, no beautiful rendering of human form was possible; and the rude or formal types of the Lombard and Byzantine, though they would serve in the tumult of the chase, or as the recognized symbols of creed, could not represent personal and domestic character. Faces with goggling eyes and rigid lips might be endured with ready help of imagination, for gods, angels, saints, or hunters—or for anybody else in scenes of recognized legend, but would not serve for pleasant portraiture of one's own self—or of the incidents of gentle, actual life. And even Cimabue did not venture to leave the sphere of conventionally reverenced dignity. He still painted—though beautifully—only the Madonna, and the St. Joseph, and the Christ. These he made living,—Florence asked no more: and "Credette Cimabue nella pintura tener lo campo."
-
-But Giotto came from the field, and saw with his simple eyes a lowlier worth. And he painted—the Madonna, and St. Joseph, and the Christ,—yes, by all means if you choose to call them so, but essentially,—Mamma, Papa, and the Baby. And all Italy threw up its cap,—"Ora ha Giotto il grido."
-
-For he defines, explains, and exalts, every sweet incident of human nature; and makes dear to daily life every mystic imagination of natures greater than our own. He reconciles, while he intensifies, every virtue of domestic and monastic thought. He makes the simplest household duties sacred, and the highest religious passions serviceable and just.
