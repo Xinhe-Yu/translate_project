@@ -368,30 +368,31 @@ Murray先生告诉你这是些“浅浮雕”（噫嘘唏！是的，现在相�
 
 因此，亲爱的读者，你被要求去欣赏一件艺术作品，一件除拉斐尔外无可匹敌的作品。但不幸的是，根据克罗的说法，它在“仅仅是外形的呈现”上有所不足；而根据卡瓦尔卡塞拉先生的说法，“无法评论它的用色。”
 
+因此，你需要在各方面如履薄冰，既不能看外形，也不能瞧用色，你被要求去欣赏“角色和表情的多样性”。我自己都不知道这些是如何在不看外形或颜色的情况下被表现出来的。但是，在我天真的看来，整幅画作只有一个脑袋的样式，在不同的位置不断重复。
+
+这个作品之所以以其“统一与和谐”成为同类中的特例，我猜是因为他整幅画就像是在垃圾车里画出来的。因此，我们只能相信克罗先生所说的最后一条：
+
+“在这幅画的构图里，乔托创造了一幅杰作。”
+
+大概吧。问题在于，如何定义是“构图”。现在，把现代的评论放在一边，我希望读者们在乔托的残迹前仔细思考。
+
+首先，你认为，对于乔托而言，他想的是“画的构图”还是一种现实事件的构图呢？如果你是个赶时髦的人，可能会见过《浮士德》里面玛格丽特的神化升天吧？你知道每天晚上，那个场景的构图花了多少心思，如何安排服装，如何开关灯光。小提琴弦被要求发出最柔和的声音，巴松管被催促表现出深刻的庄严。
+
+然而，你不相信任何玛格丽特真实的灵魂会以那种形式显现给凡人，对吧？
+
+我们这里也有一个神化升天。构图！是的，右边和左边的人物高，中间的人物低，等等，等等。
+
+但是，对我而言最重要的问题似乎是，圣方济各是否存在？他真的得到了圣痕？他的灵魂是否升入了天国，有任何僧侣看到它升上去了吗？乔托是否打算告诉我们这些？如果你愿意在心中先结局这些小问题，那么根据你的答案，“构图”会有完全不同的含义。
+
+调查后，我并不怀疑的答案必然会是什么。
+
+历史上确实有过一个圣方济各，你最好研究他的生活和工作，而非关注今天的《加利尼亚尼报》（Galignani）或是今年任何能取代蒂奇伯恩（Tichborne）案在公众兴趣中位置的事情。
+
+他获得圣痕的经历或许是想象力对身体状况影响力的一个奇妙例证，也有可能是是隐喻迅速转变成传说的一个奇妙例证。但是，毫无疑问，这是基督教会所拥有的最有影响力、最具意义、并且最具教育意义的传统之一。而且，如果有哪个灵魂从死掉的躯体里升入了天堂，那么他的灵魂肯定是这样升上去的。
+
+最后一点，乔托相信他应召去描绘的圣方济各的一切都确实发生过，就像你是一个基督徒，就会相信基督死而复生那样。
+
 %%%%
-
-
-Warned thus of the extensive places where the ice is dangerous, and forbidden to look here either for form or colour, you are to admire "the variety of character and expression in the heads." I do not myself know how these are to be given without form or colour; but there appears to me, in my innocence, to be only one head in the whole picture, drawn up and down in different positions.
-
-The "unity and harmony" of the whole—which make this an exceptional work of its kind—mean, I suppose, its general look of having been painted out of a scavenger's cart; and so we are reduced to the last article of our creed according to Crowe,—
-
-"In the composition of this scene Giotto produced a masterpiece."
-
-Well, possibly. The question is, What you mean by 'composition.' Which, putting modern criticism now out of our way, I will ask the reader to think, in front of this wreck of Giotto, with some care.
-
-Was it, in the first place, to Giotto, think you, the "composition of a scene," or the conception of a fact? You probably, if a fashionable person, have seen the apotheosis of Margaret in Faust? You know what care is taken, nightly, in the composition of that scene,—how the draperies are arranged for it; the lights turned off, and on; the fiddlestrings taxed for their utmost tenderness; the bassoons exhorted to a grievous solemnity.
-
-You don't believe, however, that any real soul of a Margaret ever appeared to any mortal in that manner?
-
-Here is an apotheosis also. Composed!—yes; figures high on the right and left, low in the middle, etc., etc., etc.
-
-But the important questions seem to me, Was there ever a St. Francis?—did he ever receive stigmata?—didhis soul go up to heaven—did any monk see it rising—and did Giotto mean to tell us so? If you will be good enough to settle these few small points in your mind first, the "composition" will take a wholly different aspect to you, according to your answer.
-
-Nor does it seem doubtful to me what your answer, after investigation made, must be.
-
-There assuredly was a St. Francis, whose life and works you had better study than either to-day's Galignani, or whatever, this year, may supply the place of the Tichborne case, in public interest.
-
-His reception of the stigmata is, perhaps, a marvellous instance of the power of imagination over physical conditions; perhaps an equally marvellous instance of the swift change of metaphor into tradition; but assuredly, and beyond dispute, one of the most influential, significant, and instructive traditions possessed by the Church of Christ. And, that, if ever soul rose to heaven from the dead body, his soul did so rise, is equally sure.
 
 And, finally, Giotto believed that all he was called on to represent, concerning St. Francis, really had taken place, just as surely as you, if you are a Christian, believe that Christ died and rose again; and he represents it with all fidelity and passion: but, as I just now said, he is a man of supreme common sense;—has as much humour and clearness of sight as Chaucer, and as much dislike of falsehood in clergy, or in professedly pious people: and in his gravest moments he will still see and say truly that what is fat, is fat—and what is lean, lean—and what is hollow, empty.
 
