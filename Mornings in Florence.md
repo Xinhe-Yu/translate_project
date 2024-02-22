@@ -27,7 +27,7 @@ John Ruskin
 
 当然在某些情况下，这个疑问并不存在。比如说在两侧底部的灰色壁画：为了更好地让游客感到满意，近两年人们根据乔托损毁了近半的原作把它修复了。但是那个圣路易呢？无论重绘与否，毫无疑问，它都是样赏心悦目的作品；在无心中有了某些初印象之后，我们必须要认真研究它。
 
-你的《Murray游览指南》告诉你，你所处的这个小圣堂属于巴尔第（Bardi della Libertà），全部的壁画由乔托所绘；它们被重新粉刷过，1853年才重见天日；壁画绘制于1296年到1304年间；它们展现了圣方济各的生平，在窗户两侧分别画了图卢兹的圣路易，法国的圣路易国王，匈牙利的圣伊丽莎白和圣嘉勒（Chiara d'Assisi），“全部被深度修复和重绘”。此般描述似乎显得这些壁画不值得人们仔细研究；因此，我在此探寻的这个早上，1874年9月6日，星期天，两位相貌堂堂的英国人，在当地导游的指引下径直走过了这个小圣堂，未多加以留意。
+你的《Murray游览指南》告诉你，你所处的这个小圣堂属于巴尔第（Bardi della Libertà），全部的壁画由乔托所绘；它们被重新粉刷过，1853年才重见天日；壁画绘制于1296年到1304年间；它们展现了圣方济各的生平，在窗户两侧分别画了图卢兹的圣路易，法国的圣路易国王，匈牙利的圣伊丽莎白和阿西西的圣嘉勒（Chiara d'Assisi），“全部被深度修复和重绘”。此般描述似乎显得这些壁画不值得人们仔细研究；因此，我在此探寻的这个早上，1874年9月6日，星期天，两位相貌堂堂的英国人，在当地导游的指引下径直走过了这个小圣堂，未多加以留意。
 
 你可能会和我一起在这里多停留上一小会儿，亲爱的读者，然后你就会逐渐明白你身处何处。名义上，这里是全意大利（据我所知）最有趣最完美的小哥特教堂。没有同属这一伟大时期的其他教堂还保留着它们所有的壁画。竞技场礼拜堂（Capella dell'Arena或dell'Annunciata；又名斯克罗威尼礼拜堂，Cappella degli Scrovegni）尽管比圣十字教堂规模大很多，但是它的年代更早一些——它不是纯粹的哥特式教堂，也没有展现乔托的全部功力。阿西西的下圣殿（Basilica inferiore di San Francesco d'Assisi）完全不是哥特式的，其壁画乔托的中期作品。但是在这里，你能看到发展成熟的哥特建筑，以及乔托臻于完美的实力，还有形式上完整的设计。
 
@@ -51,13 +51,13 @@ John Ruskin
 
 因此，请注意，在意大利那么多伟大画家中，乔托的独到之处在于他是一个实践者。无论其他人肖想着什么，他都会去实践。他能做出马赛克作品，会雕刻大理石，会绘画，会建筑，而且门门精通。他是一个有着极致能力、超凡常识的人。因此，他把自己也忝列于“劳作的使徒”的追随者之列，并用生平绝大多数时间履行这一身份的职能。
 
-按圣方济各所说，劳作的福音与真理蕴含在三项原理中：你必须不为钱工作，保持贫穷；你必须不为享乐工作，保持朴素；你必须根据命令工作，保持顺从。这就是圣方济各在意大利文化中留下的三条准则，由此衍生出了许多你能在这里看到的美好事物。
+按圣方济各所说，劳作的福音与真理蕴含在三项原理中：你必须不为钱工作，保持贫穷；你必须不为享乐工作，保持贞洁；你必须根据命令工作，保持顺从。这就是圣方济各在意大利文化中留下的三条准则，由此衍生出了许多你能在这里看到的美好事物。
 
-如果你现在举起你的望远镜，向上看阿尔诺弗建筑的屋顶，你将看到一个漂亮的哥特交叉拱顶，分为四块，每块都装饰着乔托所绘的圆饰。在圣坛正上方的那个圆饰里是圣方济各本人的人像，其他三块则是能代表他特质的天使（Commanding Angels），在他面前、拱顶入口处象征的是贫穷，他右手边象征着服从，而他左手边的则是朴素。
+如果你现在举起你的望远镜，向上看阿尔诺弗建筑的屋顶，你将看到一个漂亮的哥特交叉拱顶，分为四块，每块都装饰着乔托所绘的圆饰。在圣坛正上方的那个圆饰里是圣方济各本人的人像，其他三块则是能代表他特质的天使（Commanding Angels），在他面前、拱顶入口处象征的是贫穷，他右手边象征着服从，而他左手边的则是贞洁。
 
 **贫穷**身着红色带补丁的长袍，有着灰色的翅膀，脑袋上顶着方形的光环，试图飞离一只猎犬，这只狗的脑袋在圆饰中露出一角。
 
-**朴素**带着面纱，被囚禁在高塔中，天使们守护着她。
+**贞洁**带着面纱，被囚禁在高塔中，天使们守护着她。
 
 **服从**肩负重担，手放在一本书上。
 
@@ -320,7 +320,7 @@ Murray先生告诉你这是些“浅浮雕”（噫嘘唏！是的，现在相�
 
 他定义、解释并升华了人性中每一个甜蜜的瞬间，让每一个高于我们日常生活的神秘想象变得更亲切。他调和并加强了家庭生活和修道生活中的每一种美德。他让最简单的家庭工作变得神圣，让最高贵的宗教激情变得有益且正当。
 
-## DAY 3 在索尔丹面前（Before the Soldan）
+## DAY 3 在苏丹面前（Before the Soldan）
 
 在我要求你坐在椅子上读完我上篇文章前，我曾承诺要为桑德罗的《坚毅女神》写些什么。我把我自己写的相关笔记弄丢了，现在也忘记了她拿的是一柄剑还是一根大棒。这并不重要。她身上最重要的点是，如果你事前不知道，需要猜她是谁，那你根本想不到她会是“坚毅”。所有其他人的坚毅都自豪且清晰地宣告自身身份。她们有着塔楼般的盾牌，狮子般的头盔，两腿岔开，站立稳固，自信地准备好迎接一切来者。是的，那就是你们常见的坚毅。宏伟，尽管常见。但是无论如何，绝不是最崇高的。
 
@@ -414,61 +414,61 @@ Murray先生告诉你这是些“浅浮雕”（噫嘘唏！是的，现在相�
 
 看看窗户左侧最高的那部分。除非让人物站在彼此的头上，否则怎么也不可能用人像填满拱门。因此，乔托用一片精美的建筑补充了高处的空白。拉斐尔在《圣母婚礼》（Sposalizio）中也是出于自娱自乐，做了同样的事。
 
+然后，他在每侧都放了两个精巧的、小小的白色人物，弯着腰，用来填补角落的位置。他在右边的内侧放了一个高一点的人物，而左边则是外侧的人物较高。他在他的主要题材两侧都放置了专事观察和道德评判的希腊歌队。
+
+接着，他在主要人物的两侧都放了一个歌队长。他把主要内容放在中间，他们在那里争执白骨的归属。右侧的歌队长看到主教要占上风，平静地支持他。左侧的歌队长看到他冲动的朋友要吃亏，正在拉他回来，试图让他保持冷静。关于这幅画的主题，你应该这样理解（之后你会认为它是一个好的装饰主题，但不是现在）：圣方济各的三大美德之一是服从。在与父亲的争吵中，他开始了他灵性（/精神）生活。用现代术语来说，他把他父亲的一些财物投入慈善事业。他父亲反对这类投资。于是圣方济各逃跑了，带着他能找到的家里所有东西。他父亲追过来索回财产，但发现所有东西都已经没了。圣方济各还和阿西西的主教成为了朋友。他的父亲勃然大怒，宣称要断绝他的继承权。于是，圣方济各当场脱下了所有衣服，疯狂地掷在父亲脸上，说他和这些衣服或父亲再没有任何关系。好心的主教泪流满面地拥抱圣方济各，并用自己的斗篷遮盖他。
+
+我给你们讲解这幅图的方式就像司布真（Spurgeon）先生会说的那样——如果他对艺术有所了解的话。也就是说，是从一种朴素的、具备常识的、新教徒的角度。如果你对这种观点很满意，那你可以离开这个小教堂，而且在任何历史研究中，也可以避开佛罗伦萨。因为你永远无法真正了解关于乔托或佛罗伦萨的任何事情。
+
+然而， 不要害怕我从神秘的、荒谬的、天主教徒角度的重新解读。我会以乔托的构想解读给你——如果多年的思考使我有能力如此的话。据我们所知，乔托有当时佛罗伦萨最强的大脑和手，是世界上最优秀的宗教诗人最好的朋友。而且，就像他的朋友一样，他对世界的看法与司布真或庇护九世大相径庭。
+
+孩子的首要职责是服从父母，正如公民的首要职责是服从他国家的法律。这一职责是如此严格，我相信它是唯一一个同时受以撒和伊菲革涅亚规定的。另一方面，父母对孩子也有确定的责任——不去激怒他们。我从未听到有人在讲坛上向父母解释这段经文，这很奇怪。因为在我看来，上帝会期望父母比孩子更好地理解他们对孩子的职责，也比孩子们能够理解他们对父母的职责还要好。
+
+但是，更进一步。孩子的职责是服从其父母。圣经中，或是任何好的、明智的书籍中从未提及，成年男女有这一职责。但是，孩子究竟何时成为成年人却又无法明确界定，就像无法确定孩子应该在什么时候学会站起来一样。但确实会有那么一个时候他会这样做。伟大的国家里，孩子们总是试图留在童年，而父母希望他们成为成年人。卑劣的国家里，孩子们总是想要成为成年人，而父母则希望他们保持孩童状态。很有可能——在幸福的家庭里应如是——父亲至少意味着智慧和丰富的经验，哪怕是死后也还是孩子们行事的法则。这一切都不是强制的，而是一种完美的指引，伴随着完美的爱。这样的情况很少见，不总是行得通。老年人的偏执己见和年轻人的自以为是都是天性所致。而且，在世纪的更迭中，每一代都有一些事情需要自己判断。
+
+但是，在乔托浓墨重彩描绘这个场景中，表现得并非孩子的独立宣言，而是他选择了另一个父亲。
+
+这位阿西西的年轻人对服从上帝而非凡人的渴望，并不能与一个伦敦的年轻人对得到一把钥匙和一份独立津贴的渴望混为一谈。
+
+相比于年轻人有责任选择他们将要服侍谁，没有哪一种责任曾更加悲惨地遭到教会里的假牧师的歪曲。但是，这个责任本身没有因此而不消失。而且，如果基督教中有任何真理，对于所有真正的追随者来说，总会有一个时刻，他们需要将这句话铭记在心：“爱父母胜过爱我的，不配做我的门徒。”
+
+“爱”——请注意。这里讨论的不是不服从你不爱的父母，也不是逃离你不愿留在那里的家庭。而是，你要离开平和的家庭，要和那些你最亲近的人成为敌人——如果基督的话有意义，他的真正追随者迟早需要这样做。
+
+基督的话确实有其意义。无论这些话如何被误用——无论有多少假先知（天知道，确实有很多）呼唤年轻的孩子们来到他们身边，不为祝福，而是为了诅咒他们，一个确凿的事实仍然存在，那就是：如果你愿意服从上帝，总会有一个时刻，人类的声音，会带着最神圣的自然权威，反对你。朋友，明智建议人，兄弟姐妹，父亲和主人——你所有谨慎且敏锐的熟人声音将会汇聚成一个整体，带着庸俗世界的全部的轻蔑愚昧，同时、全部、像是用着同一张嘴来反对你。你必须服从上帝而不是人。人类，连带着他们所有的智慧和爱，所有的愤怒和愚蠢，站在一边，而上帝独自站在另一边。你必须做出选择。
+
+这就是圣方济各放弃遗产的意义。这也是乔托工作福音的开始。除非首先完成这最艰难的行为——放弃世俗的财富和遗产，否则，其他一切行为都是无用的。你不能同时服侍上帝和财富。当你内心仍与世俗保持一致时，任何慈善、服从、自我否定都毫无用处。你去教堂，因为世人都去。你守安息日，因为你的邻居在守。但你穿着荒谬，因为你的邻居这样要求你。你不敢做粗糙的活计，因为你的邻居鄙视它。你必须在他的富裕和骄傲中放弃关照你邻居的观念，并记住他的困苦。这就是圣方济各的“不服从”。
+
+现在你可以理解整个小教堂内各个主题之间的关系，以及乔托选择它们的原因了。
+
+屋顶上有三个劳动美德的象征——贫穷、贞洁、服从。
+
+A. 在左侧最高处，面向窗户。圣方济各生活从他放弃世界开始。
+
+B. 在右侧最高处。他的新生活得到了教会权威的认可和授权。
+
+C. 在左侧中央。他向自己的门徒讲道。
+
+D. 在右侧中央。他向异教徒讲道。
+
+E. 在左侧最低处。他的葬礼。
+
+F. 在右侧最低处。他死后的力量。
+
+除了这六个主题外，在窗户的两侧，还有四位伟大的方济各会圣徒，法国的圣路易、图卢兹的圣路易、阿西西的圣嘉勒和匈牙利的圣伊丽莎白。
+
+因此，在整个系列中，让你思考的内容有：首先，圣方济各良知的法则；然后，是他自己对它的采纳；接着，是基督教会对它的认可；然后，是他生前对它的传播；接着，是他死后对它的传播；最后，是他的门徒发扬它的成果。
+
+我自己只能在任何真正意义上看到这一系列主题中的第一个、第二个、第四个，还有圣路易和伊丽莎白。我只要求你再看其中的两个：右侧中间，圣方济各面对苏丹，和圣路易。
+
+使用普通的望远镜就可以清楚地看到苏丹。我认为，先注意其中的一些技术要点会比较好。
+
+如果圣殿台阶上的小圣女让你想起一幅提香的画作，那这个苏丹应该会让你想起提香所有的伟大作品。事实上，这种感觉是如此的强烈，以至于就我个人而言，如果有人告诉我说，圣十字教堂里有一幅提香早期精心绘制的壁画，我会很快相信这个报道、以及我自己的眼睛，而不是接受这是乔托作品的事实。
+
+请注意，这里没有任何“光影效果”，这是一个非常重要的点。主题是圣方济各挑战苏丹的术士（Magi）——拜火教徒，和其中一位一同穿过脚下熊熊烈焰。火焰如此炽热，以至于宝座另一边的两个术士用手遮脸。但是，火焰仅仅被表现为一团红色、扭曲的火焰，没有投射出任何火光。没有人鼻子上有红宝石色，没有人下巴下方有黑阴，没有任何伦勃朗式的暗淡渐变，没有剑柄和盔甲的闪光。
+
+你认为，这是出于乔托的无知和某种纯粹的朴素吗？他作画时是一个中年人，一生都在绘画，一直在挑战自我，按照他所见绘画。你认为他从未见过火焰投射火光吗？——他还是但丁的朋友呢！在所有诗人中，但丁对各种光影效果的体验最为微妙——尽管公众认为他只知道火的效果。但丁诗中的鬼魂一次又一次地惊讶于但丁的身体没有投下阴影。那么，这位诗人的朋友，一个画家，难道因此就不知道凡人的实体会投下阴影，而尘世的火焰会发光吗？不，但丁在《炼狱篇》中描写道，早晨阳光投下的阴影会火焰看起来更红，这一段落可与牛顿科学的准确性所比肩。难道你认为乔托从未看到这种情况吗？
+
 %%%%
-
-Then he puts two dainty little white figures, bending, on each flank, to stop up his corners. But he puts the taller inside on the right, and outside on the left. And he puts his Greek chorus of observant and moralizing persons on each side of his main action.
-
-Then he puts one Choragus—or leader of chorus, supporting the main action—on each side. Then he puts the main action in the middle—which is a quarrel about that white bone of contention in the centre. Choragus on the right, who sees that the bishop is going to have the best of it, backs him serenely. Choragus on the left, who sees that his impetuous friend is going to get the worst of it, is pulling him back, and trying to keep him quiet. The subject of the picture, which, after you are quite sure it is good as a decoration, but not till then, you may be allowed to understand, is the following. One of St. Francis's three great virtues being Obedience, he begins his spiritual life by quarreling with his father. He, I suppose in modern terms I should say, commercially invests some of his father's goods in charity. His father objects to that investment; on which St. Francis runs away, taking what he can find about the house along with him. His father follows to claim his property, but finds it is all gone, already; and that St. Francis has made friends with the Bishop of Assisi. His father flies into an indecent passion, and declares he will disinherit him; on which St. Francis then and there takes all his clothes off, throws them frantically in his father's face, and says he has nothing more to do with clothes or father. The good Bishop, in tears of admiration, embraces St. Francis, and covers him with his own mantle.
-
-I have read the picture to you as, if Mr. Spurgeon knew anything about art, Mr. Spurgeon would read it,—that is to say, from the plain, common sense, Protestant side. If you are content with that view of it, you may leave the chapel, and, as far as any study of history is concerned, Florence also; for you can never know anything either about Giotto, or her.
-
-Yet do not be afraid of my re-reading it to you from the mystic, nonsensical, and Papistical side. I am going to read it to you—if after many and many a year of thought, I am able—as Giotto meant it; Giotto being, as far as we know, then the man of strongest brain and hand in Florence; the best friend of the best religious poet of the world; and widely differing, as his friend did also, in his views of the world, from either Mr. Spurgeon, or Pius IX.
-
-The first duty of a child is to obey its father and mother; as the first duty of a citizen to obey the laws of his state. And this duty is so strict that I believe the only limits to it are those fixed by Isaac and Iphigenia. On the other hand, the father and mother have also a fixed duty to the child—not to provoke it to wrath. I have never heard this text explained to fathers and mothers from the pulpit, which is curious. For it appears to me that God will expect the parents to understand their duty to their children, better even than children can be expected to know their duty to their parents.
-
-But farther. A child's duty is to obey its parents. It is never said anywhere in the Bible, and never was yet said in any good or wise book, that a man's, or woman's, is. When, precisely, a child becomes a man or a woman, it can no more be said, than when it should first stand on its legs. But a time assuredly comes when it should. In great states, children are always trying to remain children, and the parents wanting to make men and women of them. In vile states, the children are always wanting to be men and women, and the parents to keep them children. It may be—and happy the house in which it is so—that the father's at least equal intellect, and older experience, may remain to the end of his life a law to his children, not of force, but of perfect guidance, with perfect love. Rarely it is so; not often possible. It is as natural for the old to be prejudiced as for the young to be presumptuous; and, in the change of centuries, each generation has something to judge of for itself.
-
-But this scene, on which Giotto has dwelt with so great force, represents, not the child's assertion of his independence, but his adoption of another Father.
-
-You must not confuse the desire of this boy of Assisi to obey God rather than man, with the desire of your young cockney Hopeful to have a latch-key, and a separate allowance.
-
-No point of duty has been more miserably warped and perverted by false priests, in all churches, than this duty of the young to choose whom they will serve. But the duty itself does not the less exist; and if there be any truth in Christianity at all, there will come, for all true disciples, a time when they have to take that saying to heart, "He that loveth father or mother more than me, is not worthy of me."
-
-'Loveth'—observe. There is no talk of disobeying fathers or mothers whom you do not love, or of running away from a home where you would rather not stay. But to leave the home which is your peace, and to be at enmity with those who are most dear to you,—this, if there be meaning in Christ's words, one day or other will be demanded of His true followers.
-
-And there is meaning in Christ's words. Whatever misuse may have been made of them,—whatever false prophets—and Heaven knows there have been many—have called the young children to them, not to bless, but to curse, the assured fact remains, that if you will obey God, there will come a moment when the voice of man will be raised, with all its holiest natural authority, against you. The friend and the wise adviser—the brother and the sister—the father and the master—the entire voice of your prudent and keen-sighted acquaintance—the entire weight of the scornful stupidity of the vulgar world—for once, they will be against you, all at one. You have to obey God rather than man. The human race, with all its wisdom and love, all its indignation and folly, on one side,—God alone on the other. You have to choose.
-
-That is the meaning of St. Francis's renouncing his inheritance; and it is the beginning of Giotto's gospel of Works. Unless this hardest of deeds be done first,—this inheritance of mammon and the world cast away,—all other deeds are useless. You cannot serve, cannot obey, God and mammon. No charities, no obediences, no self-denials, are of any use, while you are still at heart in conformity with the world. You go to church, because the world goes. You keep Sunday, because your neighbours keep it. But you dress ridiculously, because your neighbours ask it; and you dare not do a rough piece of work, because your neighbours despise it. You must renounce your neighbour, in his riches and pride, and remember him in his distress. That is St. Francis's 'disobedience.'
-
-And now you can understand the relation of subjects throughout the chapel, and Giotto's choice of them.
-
-The roof has the symbols of the three virtues of labour—Poverty, Chastity, Obedience.
-
-A. Highest on the left side, looking to the window. The life of St. Francis begins in his renunciation of the world.
-
-B. Highest on the right side. His new life is approved and ordained by the authority of the church.
-
-C. Central on the left side. He preaches to his own disciples.
-
-D. Central on the right side. He preaches to the heathen.
-
-E. Lowest on the left side. His burial.
-
-F. Lowest on the right side. His power after death.
-
-Besides these six subjects, there are, on the sides of the window, the four great Franciscan saints, St. Louis of France, St. Louis of Toulouse, St. Clare, and St. Elizabeth of Hungary.
-
-So that you have in the whole series this much given you to think of: first, the law of St. Francis's conscience; then, his own adoption of it; then, the ratification of it by the Christian Church; then, his preaching it in life; then, his preaching it in death; and then, the fruits of it in his disciples.
-
-I have only been able myself to examine, or in any right sense to see, of this code of subjects, the first, second, fourth, and the St. Louis and Elizabeth. I will ask you only to look at two more of them, namely, St. Francis before the Soldan, midmost on your right, and St. Louis.
-
-The Soldan, with an ordinary opera-glass, you may see clearly enough; and I think it will be first well to notice some technical points in it.
-
-If the little virgin on the stairs of the temple reminded you of one composition of Titian's, this Soldan should, I think, remind you of all that is greatest in Titian; so forcibly, indeed, that for my own part, if I had been told that a careful early fresco by Titian had been recovered in Santa Croce, I could have believed both report and my own eyes, more quickly than I have been able to admit that this is indeed by Giotto. It is so great that—had its principles been understood-there was in reality nothing more to be taught of art in Italy; nothing to be invented afterwards, except Dutch effects of light.
-
-That there is no 'effect of light' here arrived at, I beg you at once to observe as a most important lesson. The subject is St. Francis challenging the Soldan's Magi,—fire-worshippers—to pass with him through the fire, which is blazing red at his feet. It is so hot that the two Magi on the other side of the throne shield their faces. But it is represented simply as a red mass of writhing forms of flame; and casts no firelight whatever. There is no ruby colour on anybody's nose: there are no black shadows under anybody's chin; there are no Rembrandtesque gradations of gloom, or glitterings of sword-hilt and armour.
-
-Is this ignorance, think you, in Giotto, and pure artlessness? He was now a man in middle life, having passed all his days in painting, and professedly, and almost contentiously, painting things as he saw them. Do you suppose he never saw fire cast firelight?—and he the friend of Dante! who of all poets is the most subtle in his sense of every kind of effect of light—though he has been thought by the public to know that of fire only. Again and again, his ghosts wonder that there is no shadow cast by Dante's body; and is the poet's friend, because a painter, likely, therefore, not to have known that mortal substance casts shadow, and terrestrial flame, light? Nay, the passage in the 'Purgatorio' where the shadows from the morning sunshine make the flames redder, reaches the accuracy of Newtonian science; and does Giotto, think you, all the while, see nothing of the sort?
 
 The fact was, he saw light so intensely that he never for an instant thought of painting it. He knew that to paint the sun was as impossible as to stop it; and he was no trickster, trying to find out ways of seeming to do what he did not. I can paint a rose,—yes; and I will. I can't paint a red-hot coal; and I won't try to, nor seem to. This was just as natural and certain a process of thinking with him, as the honesty of it, and true science, were impossible to the false painters of the sixteenth century.
 
